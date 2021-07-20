@@ -2,4 +2,4 @@ Hi, I’m @danielcollishaw! I am a student at the University of Central Florida 
 
 I am looking to build up my project record in search of intership opportunites. 
 
-You can contact me at <daniel.collishaw@icloud>
+You can contact me at <daniel.collishaw@icloud.com>
